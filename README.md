@@ -6,7 +6,19 @@ https://faucet.circle.com
 II. Các nhiệm vụ chính (Dapps Ecosystem)
 1. https://www.xylonet.xyz/
 Thực hiện các thao tác Swap, thêm thanh khoản (Liquidity), sử dụng cầu nối (Bridge) và hoàn thành các nhiệm vụ xã hội tích điểm.
+# ggggfhhfhfhfhhhhhhhhhhhh
+sfdgdgdg
+I. Faucet
+- Đầu tiên, hãy truy cập vào Faucet để nhận token thử nghiệm làm phí gas.
+https://faucet.circle.com
+II. Các nhiệm vụ chính (Dapps Ecosystem)
+1. https://www.xylonet.xyz/
+Thực hiện các thao tác Swap, thêm thanh khoản (Liquidity), sử dụng cầu nối (Bridge) và hoàn thành các nhiệm vụ xã hội tích điểm.
 
+2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
++ https://superboard.xyz/campaigns/samas-arc-testnet-exploration
+https://www.arcflow.finance/
+3 Trải nghiệm giao dịch phái sinh (Perps) – thực hiện vài lệnh Long/Short để tăng tương tác Smar
 2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
 + https://superboard.xyz/campaigns/samas-arc-testnet-exploration
 https://www.arcflow.finance/
