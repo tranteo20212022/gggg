@@ -1,5 +1,12 @@
 # ggggfhhfhfhfhhhhhhhhhhhh
+sfdgdgdg# ggggfhhfhfhfhhhhhhhhhhhh
 sfdgdgdg
+I. Faucet
+- Đầu tiên, hãy truy cập vào Faucet để nhận token thử nghiệm làm phí gas.
+https://faucet.circle.com
+II. Các nhiệm vụ chính (Dapps Ecosystem)
+1. https://www.xylonet.xyz/
+Thực hiện các thao tác Swap, thêm thanh khoản (Liquidity), sử dụng cầu nối (Bridge) và hoàn thành c
 I. Faucet
 - Đầu tiên, hãy truy cập vào Faucet để nhận token thử nghiệm làm phí gas.
 https://faucet.circle.com
