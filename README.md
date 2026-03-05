@@ -9,6 +9,7 @@ sfdgdgdg# ggggfhhfhfhfhhhhhhhhhhhh
 sfdgdgdg
 I. Faucet
 - Đầu tiên, hãy truy cập vào Faucet để nhận token thử nghiệm làm phí gas.
+- 
 https://faucet.circ# ggggfhhfhfhfhhhhhhhhhhhh
 
 sfdgdgdg# ggggfhhfhfhfhhhhhhhhhhhh
