@@ -15,6 +15,7 @@ https://www.arcflow.finance/
 3 Trải nghiệm giao dịch phái sinh (Perps) – thực hiện vài lệnh Long/Short để tăng tương tác Smart Contract.
 + https://testnet.axpha.io/#/perp# ggggfhhfhfhfhhhhhhhhhhhh
 sfdgdgdg# ggggfhhfhfhfhhhhhhhhhhhh
+
 sfdgdgdg
 I. Faucet# ggggfhhfhfhfhhhhhhhhhhhh
 sfdgdgdg# ggggfhhfhfhfhhhhhhhhhhhh
