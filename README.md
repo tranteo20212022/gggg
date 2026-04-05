@@ -7,6 +7,7 @@ https://www.arcflow.finance/
 3 Trải nghiệm giao dịch phái sinh (Perps) – thực hiện vài lệnh Long/Short để tăng tương tác
 Smar
 
+
 2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
 2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
 + https://superboard.xyz/campaigns/samas-arc-testnet-exploration
