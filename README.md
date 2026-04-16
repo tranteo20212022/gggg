@@ -7,7 +7,19 @@
 + https://superboard.xyz/campaigns/samas-arc-testnet-exploration
 + 2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
 + https://superboard.xyz/campaigns/samas-arc-testnet-exploration
++ 2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
++ https://superboard.xyz/campaigns/samas-arc-testnet-exploration
++ 2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
++ https://superboard.xyz/campaigns/samas-arc-testnet-exploration
++ 2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
+  3. 2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
++ https://superboard.xyz/campaigns/samas-arc-testnet-exploration
++ 2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
++ https://superboard.xyz/campaigns/samas-arc-testnet-exploration
 + 
++ 2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
+ 2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
++ https://superboard.xyz/campaigns/samas-arc-testnet-exploration
 + 2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
  2. Tham gia chiến dịch đặc biệt của Arc trên nền tảng này để nhận Badge/Point.
 + https://superboard.xyz/campaigns/samas-arc-testnet-exploration
